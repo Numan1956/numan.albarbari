@@ -1,3 +1,4 @@
+
 # 🙋‍♂️ Numan Albarbari | نعمان البربري
 
 Willkommen!  
@@ -13,5 +14,13 @@ Zuvor war ich über 35 Jahre lang als Arabischlehrer tätig, bevor ich meinen We
 
 ## 🌍 Meine Vision  
 Schreiben ist kein Luxus – es ist der Versuch, das zu verstehen, was in uns geschieht…  
-und der Schatten einer Entsche
-# numan.albarbari
+und der Schatten einer Entscheidung, die uns überallhin begleitet.
+
+## 🖼️ Gestaltung & Buchcover  
+Ich nutze digitale Techniken, um die Buchcover meiner Romane zu entwerfen,  
+und bereite elektronische Versionen zur Online-Veröffentlichung vor.
+
+---
+
+📫 Kontakt:  
+Sie können mich über dieses Profil erreichen.
